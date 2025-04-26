@@ -13,5 +13,4 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on Islamic universty 
 - 🌱 I’m currently learning Computer saince
 - 🤔 I’m looking for help with learning a new stuff
-- 😄 Pronouns: he\him
 
